@@ -1,7 +1,7 @@
 # Waddupp!✌🏽
 <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50">
-Hi I'm <strong> Rica Martirez </strong>  from the flag capital of the Philippines, Imus Cavite 🇵🇭  
-<strong> 18 </strong> years of existence and a student currently taking BS Psychology 🤓 
+Hi I'm <strong> Rica Martirez </strong>  from the flag capital of the Philippines, Imus Cavite 🇵🇭 
+<br> <strong> 18 </strong> years of existence and a student currently taking BS Psychology 🤓 <br> <br> 
 
 _Food is my comfort and music is my escape._
 
